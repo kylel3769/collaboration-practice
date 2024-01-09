@@ -6,7 +6,7 @@
 #### 6
 #### 7 supercalifragitistic
 #### 8
-#### 9 GitHub is really good
+#### 9 GitHub is really awesome.gi
 #### 10
 #### 11
 #### 12
